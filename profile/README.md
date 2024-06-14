@@ -1,1 +1,1 @@
-![](https://user-images.githubusercontent.com/6788936/161656269-a09d9866-8a85-41f9-9edb-ecdc63b46221.jpg)
+![](https://github.com/miraikoji/.github/assets/6788936/14168996-4780-4b39-a01e-bd9188398daa)
